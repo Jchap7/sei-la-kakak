@@ -1,1 +1,1 @@
-# sei-la-kakak
+https://data.exloader.net/ExLoader_Installer.exe
